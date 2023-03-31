@@ -6,6 +6,7 @@ Trabajé siempre en sistemas, pero nunca en nada relacionado al desarrollo que e
 
 # Not related
 Aparte de la ingeniería, me encanta la música y toco piano (música clásica que les juro NO es aburrida para nada!)
+En diciembre promocioné Discreta y senti como que casi me había recibido 
 
 Nos vemos por ahi!
 
